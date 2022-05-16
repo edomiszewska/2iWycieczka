@@ -1,4 +1,4 @@
->> **Powody, dla których nie pojechałam na wycieczkę i co wtedy robiłam***
+>> **Powody, dla których nie pojechałam na wycieczkę i co wtedy robiłam**
 
 >Powody:
 
