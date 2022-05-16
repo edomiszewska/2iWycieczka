@@ -4,7 +4,7 @@
 
 Nie pojechałam na wycieczkę, bo był to zbyt duży koszt jak na ten miesiąc i sytuacje, którą obecnie mam w domu.
 Lekcje z 2ei nie wydawały się dobrym pomysłem, też ze względu na to, że mam tam osoby z dawnej klasy w podstawówce które niekoniecznie były miłe, 
-dlatego starałam się dostać do tej klasy, bez nich - średnio widziało mi się pójście na 3 dni do ich klasy, też z czystego stresu.
+dlatego starałam się dostać do tej klasy bez nich - średnio widziało mi się pójście na 3 dni do ich klasy, też z czystego stresu.
 
 >Trzy dni:
 
