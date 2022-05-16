@@ -9,7 +9,7 @@ dlatego starałam się dostać do tej klasy bez nich - średnio widziało mi si�
 >Trzy dni:
 
 Dostawałam zdjęcia od Zuzi z wycieczki - krajobrazy czy zwierzęta, zdjęcia ze znajomymi czy 3 korony. 
-Przyjechała razem z pamiątką dla mnie i Dawida - breloczkiem w kształcie brązowej owcy, więc naprawdę mnie to ucieszyło.
+Przyjechała z wycieczki razem z pamiątką dla mnie i Dawida - breloczkiem w kształcie brązowej owcy, więc naprawdę mnie to ucieszyło.
 Zamiast wycieczki za 400zł, pojechałam z mamą i jej koleżankami na nocne zwiedzanie (Racibórz - zamek, Opactwo Cystersów i Kolejke w Rudzie). 
 całość wyniosła jakieś 10-15zł - za przejazd starą kolejką, samo zwiedzanie było darmowe.
 Kolejka była świetna - ok. 22:00, klimatycznie w blasku księżyca i z bezokiennymi wagonami.
